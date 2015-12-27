@@ -1,2 +1,0 @@
-nyankod.github.io
-=================
